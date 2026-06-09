@@ -29,6 +29,6 @@ Discover more about [painting company reviews](https://dhapainting.ca/painting-c
 
 Explore trusted [painting company reviews](https://dhapainting.ca/painting-company-reviews/) and find experienced professionals for your next painting project.
 
-Tags
+**Tags**
 
 painting company reviews, painting reviews Canada, best painting companies, professional painter reviews, local painting contractor reviews, residential painting reviews, commercial painting reviews, painting service ratings, trusted painters Canada, painting business reviews
